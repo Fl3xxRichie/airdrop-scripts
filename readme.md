@@ -168,7 +168,7 @@ Before running any scripts, ensure you have:
 
 ## 📱 Support & Contact
 
-- Private Channel: [Premium Script](https://t.me/+lHwQjjygtgo0NjRk)
+- Private Channel: [Premium Script](https://t.me/+GIfY4Pb0Spw5OGZk)
 - Public Channel: [Airdrop3arn](https://t.me/airdrop3arn)
 - Direct Contact: [FlexxRichie](https://t.me/flexxrichie)
 - Twitter: [@FlexxRichie](https://twitter.com/FlexxRichie)
